@@ -1,0 +1,8 @@
+[a.html](https://github.com/user-attachments/files/28007813/a.html)
+[a.js](https://github.com/user-attachments/files/28007815/a.js)[a.css](https://github.com/user-attachments/files/28007830/a.css)
+[TAGWAYEN HARUFA .html](https://github.com/user-attachments/files/28007827/TAGWAYEN.HARUFA.html)
+[Hus..html](https://github.com/user-attachments/files/28007825/Hus.html)
+[hausa.html](https://github.com/user-attachments/files/28007824/hausa.html)
+[harufa.html](https://github.com/user-attachments/files/28007823/harufa.html)
+[HARUFA DA WASULLA.html](https://github.com/user-attachments/files/28007819/HARUFA.DA.WASULLA.html)
+[Darusan hausa.html](https://github.com/user-attachments/files/28007817/Darusan.hausa.html)
